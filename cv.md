@@ -7,7 +7,7 @@
 - **Phone:** +380678016688
 - **Email:** <darina1991@gmail.com>
 - **GitHub:** Darina-Chumachenko
-  ***
+***
 
 ### **About Me**
 
