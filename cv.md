@@ -1,7 +1,7 @@
 # Darina Chumachenko
 
 ---
- 
+
 ### **Contact information:**
 
 - **Phone:** +380678016688
